@@ -1,5 +1,3 @@
----
-
 ### Hi there, I'm Angela Walker! 👋
 
 🚀 **Museum & Gallery Enthusiast** | 🌌 **Exhibition Specialist** | 🖌️ **Art Advocate**
